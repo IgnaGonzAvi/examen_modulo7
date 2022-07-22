@@ -1,2 +1,0 @@
-# examen_modulo7
- 
